@@ -1,4 +1,0 @@
-hyp
-===
-
-Hatha Yoga Pradipika
